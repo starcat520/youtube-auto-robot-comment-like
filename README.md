@@ -14,3 +14,6 @@ how to use: click the icon after installing
 使用方式 :点击左上角
 
 (虽是营销用途,但完全免费!!!)
+
+
+email: 2635760633@qq.com if u have any errors or suggestions, email me.
