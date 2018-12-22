@@ -19,3 +19,5 @@ how to use: click the icon after installing
 email: 2635760633@qq.com if u have any errors or suggestions, email me.
 
 youtube link: https://www.youtube.com/watch?v=ATEwBlFu--0&t=14s
+
+微信ghoster52
